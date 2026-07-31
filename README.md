@@ -1,5 +1,3 @@
-<img width="1735" height="976" alt="image" src="https://github.com/user-attachments/assets/9ecd6ba5-999d-4fb0-b5f9-69fd23ec910a" /># Behind-The-Broadcast--PRISIONER0-ESPA-OL
-
 link del juego original:
 https://eliscz.itch.io/behind-the-broadcast
 
