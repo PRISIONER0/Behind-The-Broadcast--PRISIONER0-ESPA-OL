@@ -1,11 +1,12 @@
-# Behind-The-Broadcast--PRISIONER0-ESPA-OL
+<img width="1735" height="976" alt="image" src="https://github.com/user-attachments/assets/9ecd6ba5-999d-4fb0-b5f9-69fd23ec910a" /># Behind-The-Broadcast--PRISIONER0-ESPA-OL
 
 link del juego original:
 https://eliscz.itch.io/behind-the-broadcast
 
 <img width="1739" height="976" alt="image" src="https://github.com/user-attachments/assets/e9cb5988-4f73-426a-b10f-e95595382d92" />
 
-![Uploading image.png…]()
+<img width="1733" height="971" alt="image" src="https://github.com/user-attachments/assets/f004ebe7-0d9d-4953-8707-68068c5c3ad7" />
+
 
 
 Descarga aqui la traduccion al Behind The Broadcast
